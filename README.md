@@ -13,4 +13,5 @@ You can contact me using Google Chat, Google Spaces, and Canvas Email lastly.
 Work hard, enjoy the journey, and have a great semester!
 
 Professor Corey Leong
+
 LinkedIn: https://www.linkedin.com/in/profcorey/
