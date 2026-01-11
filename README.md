@@ -14,4 +14,4 @@ Work hard, enjoy the journey, and have a great semester!
 
 Professor Corey Leong
 
-LinkedIn: https://www.linkedin.com/in/profcorey/
+[profcorey@linkedIn](https://www.linkedin.com/in/profcorey)
